@@ -1,0 +1,1 @@
+During my high school year, I came across with competitive programming. It was something as interesting as mathematics which is full of logical thinking. Here I am, I upload all the competitive programming questions that I have done until today. 
